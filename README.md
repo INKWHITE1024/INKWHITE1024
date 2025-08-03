@@ -1,4 +1,4 @@
-# Hi there, I'm Qiushi Li 👋
+# Hi there, I'm Inkwhite 👋
 
 ## 👨🏻‍💻 About Me
 
